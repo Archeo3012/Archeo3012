@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Archeo3012
+- 👀 I’m interested in FiveM Developing
+- 🌱 I’m currently learning UI Design
+- 💞️ I’m looking to collaborate on https://discord.gg/CADCnzfccg
+- 📫 How to reach me: Discord: archeo3012
+- 😄 Pronouns: he
